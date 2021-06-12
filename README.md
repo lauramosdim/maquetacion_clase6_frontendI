@@ -1,4 +1,4 @@
-**Equipo 6**
+**Equipo 3**
 
 
 *Ezequiel Safdie*
